@@ -1,0 +1,3 @@
+TRUMP KING!!
+MAGA WIN!!
+WE WILL MAKE (.................) GREAT AGAIN!!
